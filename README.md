@@ -30,9 +30,9 @@ Et finalement, quand beaucoup de gens aujourd'hui me disent :
 >"Mais comment fais-tu pour avoir cette humanité ?",
 
 Eh bien je leur réponds très simplement,
-je leur dis que c'est ce goût de l'amour,
-Ce goût donc qui m'a poussé aujourd'hui
+je leur dis que c'est ce *goût* de l'amour,
+Ce *goût* donc qui m'a poussé aujourd'hui
 à entreprendre une construction mécanique,
 Mais demain, qui sait, peut-être simplement
 à me mettre au service de la communauté,
-à faire le don, le don de soi...
+à faire le *don*, le *don* de soi...
