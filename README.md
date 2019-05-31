@@ -19,8 +19,8 @@ je dirais, le miroir qui vous aide à avancer.
 
 Alors ce n'est pas mon cas, comme je le disais là,
 puisque moi au contraire, j'ai pu ;
-Et je dis merci à la vie, je lui dis ***merci***,
-je chante la vie, je danse la vie... Je ne suis qu'amour!
+- Et je dis merci à la vie, - je lui dis ***merci***,
+- je chante la vie, - je danse la vie... - Je ne suis qu'amour!
 
 Et finalement, quand beaucoup de gens aujourd'hui me disent :
 
