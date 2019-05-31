@@ -24,7 +24,8 @@ je chante la vie, je danse la vie... Je ne suis qu'amour!
 
 Et finalement, quand beaucoup de gens aujourd'hui me disent :
 
-"Mais comment fais-tu pour avoir cette humanité ?",
+>>"Mais comment fais-tu pour avoir cette humanité ?",
+
 Eh bien je leur réponds très simplement,
 je leur dis que c'est ce goût de l'amour,
 Ce goût donc qui m'a poussé aujourd'hui
