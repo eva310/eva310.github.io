@@ -5,8 +5,8 @@ qu'il y ait de bonne ou de mauvaise situation.
 
 Moi, si je devais résumer ma vie aujourd'hui avec vous,
 je dirais que c'est d'abord 
-1.des rencontres,
-2.Des gens qui m'ont tendu la main,
+1. des rencontres,
+2. Des gens qui m'ont tendu la main,
 peut-être à un moment où je ne pouvais pas, où j'étais seul chez moi.
 
 Et c'est assez curieux de se dire que les hasards,
